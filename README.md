@@ -1,3 +1,1 @@
-# baichen's website
-
-* baichen318@gmail.com
+# Xiaofeng Li's website
